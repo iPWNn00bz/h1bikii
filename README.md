@@ -118,3 +118,20 @@ MY GAY BFFS, STAN OLIVER X E (Cookie, please stop simping for the Haitani siblin
 " Local ;-; " -Oliver, 2023
 
 " :crying_cat_face: " -Cookie, 2023
+
+
+~
+
+
+
+![Bruno_E](https://github.com/h1bikii/h1bikii/assets/149905124/817389f5-071a-40cd-99c2-bcbbdcc6998c)
+
+
+
+### TuKi / Matu
+
+`` Silly little brother. ´´
+
+Lil bro who proclaims he isn't queer, but that's another lie.
+
+" [-/ Apocalypse BF] thinks: tengo micropene "
