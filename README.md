@@ -1,6 +1,8 @@
 👾 ELLOOOOOOOO~ I'm Hibiki/Ethaniee or Azu.
 
 
+`` [AMOR SE NOS QUEMA LA CASA] thinks: AMOR SE NOS QUEMA LA CASA ´´
+
 ![Spr_HGSS_Ethan](https://github.com/h1bikii/h1bikii/assets/149905124/85f870fc-0e3b-4f64-a502-ef567a90c317) ![Nanci_N2B2](https://github.com/h1bikii/h1bikii/assets/149905124/f902c5b2-e33f-42e9-ba0c-5cd977d86e1d)
 
 
@@ -130,8 +132,8 @@ MY GAY BFFS, STAN OLIVER X E (Cookie, please stop simping for the Haitani siblin
 
 ### TuKi / Matu
 
-`` Silly little brother. ´´
+`` Silly little brother...! Turns out, he's older than me. ´´
 
-Lil bro who proclaims he isn't queer, but that's another lie.
+'Lil' (Big) bro who i suspect is queer.
 
 " [-/ Apocalypse BF] thinks: tengo micropene "
