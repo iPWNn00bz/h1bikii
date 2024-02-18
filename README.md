@@ -62,19 +62,6 @@ TRAUMA BUDDIES !! My beloved Ñaña!! (Sister)
 " I hear you like my balls... " -Tina, 2023.
 
 
-~
-
-
-![image](https://github.com/h1bikii/h1bikii/assets/149905124/32026b8b-e306-49e7-bb09-09b54cbee209) ![image](https://github.com/h1bikii/h1bikii/assets/149905124/c1526a8b-db63-4e60-b7da-2c55fbe7a284)
-
-
-
-### Mark
-`` Gyaru lover 100. ´´
-
-Yes, he's an Gyaru lover, i can assure that to you. My beloved traumatized (like me) little brother <3<3
-
-" . . . " -Missing quote, :sobs:
 
 ~
 
