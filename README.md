@@ -1,126 +1,16 @@
-👾 ELLOOOOOOOO~ I'm Hibiki/Ethaniee or Azu.
-
+hey. go read my carrd idk.
 
 `` [AMOR SE NOS QUEMA LA CASA] thinks: AMOR SE NOS QUEMA LA CASA ´´
 
-![Spr_HGSS_Ethan](https://github.com/h1bikii/h1bikii/assets/149905124/85f870fc-0e3b-4f64-a502-ef567a90c317) ![Nanci_N2B2](https://github.com/h1bikii/h1bikii/assets/149905124/f902c5b2-e33f-42e9-ba0c-5cd977d86e1d)
+![Falkner](https://images.wikidexcdn.net/mwuploads/wikidex/3/33/latest/20120702011515/Pegaso_N2B2.gif) ![Bugsy](https://images.wikidexcdn.net/mwuploads/wikidex/d/d8/latest/20120702011540/Ant%C3%B3n_N2B2.gif) ![Whitney](https://images.wikidexcdn.net/mwuploads/wikidex/5/53/latest/20120702011603/Blanca_N2B2.gif) ![Morty](https://images.wikidexcdn.net/mwuploads/wikidex/f/fe/latest/20120702011649/Morti_N2B2.gif) ![Chuck](https://images.wikidexcdn.net/mwuploads/wikidex/9/95/latest/20120702011716/An%C3%ADbal_N2B2.gif) ![Jasmine](https://images.wikidexcdn.net/mwuploads/wikidex/9/99/latest/20120702011743/Yasmina_N2B2.gif) ![Pryce](https://images.wikidexcdn.net/mwuploads/wikidex/2/24/latest/20120702011823/Fredo_N2B2.gif) ![Clair](https://images.wikidexcdn.net/mwuploads/wikidex/d/d9/latest/20120702011845/D%C3%A9bora_N2B2.gif)
 
 
+![Mini](https://images.wikidexcdn.net/mwuploads/wikidex/f/f5/latest/20160504161048/Eco_mini_PPC.png) i'm tireddd... blehp
 
 
 
+![Bug](https://archives.bulbagarden.net/media/upload/8/88/S2_Gym_Leader_Bugsy_alt.png)
 
+![Nepeti](https://64.media.tumblr.com/99219cdfedd3ed26da472e799d089869/2d3bb7f67a53c061-4d/s250x400/96fcb12a9e142edff334b456fe8d25b26d44277e.png)
 
-This page will be low-effort because my coding is below average </3 (And someone here is lazy to color <3, have fun!)
-
-![c96d0c8ee96f431993781ed6c5976a17](https://github.com/h1bikii/h1bikii/assets/149905124/f0f6af11-3bfd-48ed-b031-db7583f1f2ec)
-
-
-
-🎹 - I'm a young lad interested in coding (and making friends, please)
-
-
-DO NOT INTERACT
--
--Pr0ship
--Ped0s
-
-
-Current Fandoms i'm in...
--
-- 💫Pokémon-PokéSPE-Poképasta
-- 🔪Omori
-- 💀FNAF-FNAC
-- 🎻Law Of Talos-Castle Of Nations
-- 🩸Danganronpa
-- 🍎TMC
-- 🔹 FNF (Skyverse, DnB, Hypno's Lullaby.)
-- 💟DDLC
-
-
-![baaf540907c5af0100daca22925ea130](https://github.com/h1bikii/h1bikii/assets/149905124/4d1e70f7-3407-4164-8d8f-ad9ee2cead95)
-
-![07909df8ca9ddc955c0c3bd51a105c96](https://github.com/h1bikii/h1bikii/assets/149905124/fe0c1bf1-dfcb-4530-8306-e85fa6bd0867)
-
-![f01ed0cc773f71865c8d76965f8d3bb2](https://github.com/h1bikii/h1bikii/assets/149905124/d1b19c78-7ef7-4d9d-ba1b-60739f5aa46e)
-
-
-
-# MY BESTIESSSSS (N' relatives i love, kkkkk~)
-
-
-
-![image](https://github.com/h1bikii/h1bikii/assets/149905124/dc63c5fb-5823-4ae9-94a4-5c85fc54bd31) ![image](https://github.com/h1bikii/h1bikii/assets/149905124/0f1c2aa6-253d-4262-bcde-62021047996c)
-
-
-
-### Tea/Tina/Tori
-`` Your mom is amazing. ´´
-
-TRAUMA BUDDIES !! My beloved Ñaña!! (Sister)
-
-" I hear you like my balls... " -Tina, 2023.
-
-
-
-~
-
-
-![Spr_HGSS_Silver](https://github.com/h1bikii/h1bikii/assets/149905124/95e8c0e1-266f-49c0-b878-8221a8ebaf0c) ![Spr_4h_215_f](https://github.com/h1bikii/h1bikii/assets/149905124/9bf97b51-0b10-429a-b5bc-f090a16811e3)
-
-[The day Sneasels float...]
-
-### MitzuTheBoyKisser/Silverloverforeverr
-`` You like kissing boys, don't ya'? ´´
-
-I, Infact, became a boy just for them <3<3<3<3
-
-" [IJustWannaGetHighWithMyLover] thinks: BESO EN LA CALBA "
-
-~
-
-
-![Spr_B2W2_Nate_2](https://github.com/h1bikii/h1bikii/assets/149905124/6985c6c8-18df-49b4-a6fa-c34148bdbe5c)
-
-
-
-### Tori (Joestar, MY MOTHER)
-`` She actually made me feel loved, wha- ´´
-
-MY MOTHERRRRRRRRRRRRRRRRRRRR :33
-
-" [°•.Eevee♀[RMK]ORG🚫Copy] thinks: Culo en salsa "
-
-
-~
-
-![Rojo_N2B2](https://github.com/h1bikii/h1bikii/assets/149905124/c903ad97-dd45-4f03-8d3d-f2ec27214de1) ![Verde_intro_RFVH](https://github.com/h1bikii/h1bikii/assets/149905124/f9d5344a-0517-4426-9e9b-ac5fc5e376f0)
-
-
-
-### Oliver and Cookie
-
-`` Me and the witches when: ´´
-
-MY GAY BFFS, STAN OLIVER X E (Cookie, please stop simping for the Haitani siblings, please)
-
-" Local ;-; " -Oliver, 2023
-
-" :crying_cat_face: " -Cookie, 2023
-
-
-~
-
-
-
-![Bruno_E](https://github.com/h1bikii/h1bikii/assets/149905124/817389f5-071a-40cd-99c2-bcbbdcc6998c)
-
-
-
-### TuKi / Matu
-
-`` Silly little brother...! Turns out, he's older than me. ´´
-
-'Lil' (Big) bro who i suspect is queer.
-
-" [-/ Apocalypse BF] thinks: tengo micropene "
+![Canwe](https://64.media.tumblr.com/e7a8b55c6d337d8d5ec1fbf56ace3fed/03baa8203285949d-ce/s250x400/e5e6f03d834a2a7731d03d467b2495dfbae1bdaf.gif) 
