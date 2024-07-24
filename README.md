@@ -2,4 +2,8 @@
 
 **[RECONSTRUCTING PAGE . . .]**
 
+09:07 PM[editing my socials . w2i] ns pq amo usar el typing quirk de sollux
+09:07 PM[editing my socials . w2i] esta bn lindo cagar todo
+09:08 PM[editing my socials . w2i] mii22ii22iippii
+
 ![image](https://images.wikidexcdn.net/mwuploads/wikidex/a/ab/latest/20091211200537/Oro_junto_a_la_c%C3%A1psula_del_tiempo.png)
