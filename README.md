@@ -9,3 +9,7 @@
 09:08 PM[editing my socials . w2i] mii22ii22iippii
 
 ![image](https://images.wikidexcdn.net/mwuploads/wikidex/a/ab/latest/20091211200537/Oro_junto_a_la_c%C3%A1psula_del_tiempo.png)
+
+
+i become [Meguca](https://www.youtube.com/watch?v=TrgxHDoe8gA)
+for Kyusiko
