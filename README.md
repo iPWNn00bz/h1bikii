@@ -8,7 +8,7 @@
 
 09:08 PM[editing my socials . w2i] mii22ii22iippii
 
-![image](https://images.wikidexcdn.net/mwuploads/wikidex/a/ab/latest/20091211200537/Oro_junto_a_la_c%C3%A1psula_del_tiempo.png)
+![image](https://images.wikidexcdn.net/mwuploads/wikidex/5/54/latest/20240912160131/Ilustraci%C3%B3n_de_Eco_usando_el_Pok%C3%A9gear_OP.png)
 
 
 i become [Meguca](https://www.youtube.com/watch?v=TrgxHDoe8gA)
