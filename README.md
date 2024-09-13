@@ -8,7 +8,7 @@
 
 09:08 PM[editing my socials . w2i] mii22ii22iippii
 
-![image](https://images.wikidexcdn.net/mwuploads/wikidex/5/54/latest/20240912160131/Ilustraci%C3%B3n_de_Eco_usando_el_Pok%C3%A9gear_OP.png)
+![image](https://archives.bulbagarden.net/media/upload/thumb/a/a2/Gold_Silver_Ethan_Pok%C3%A9gear.png/150px-Gold_Silver_Ethan_Pok%C3%A9gear.png)
 
 
 i become [Meguca](https://www.youtube.com/watch?v=TrgxHDoe8gA)
